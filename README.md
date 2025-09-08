@@ -1,2 +1,2 @@
 # PYTHON-PROJECTS
-My peersonal python projects hell yeal 🔥🔥🔥
+My personal Python projects, hell yeah 🔥🔥🔥
